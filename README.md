@@ -7,3 +7,4 @@
 客户端及教程下载https://pan.amhz.xyz/
 
 
+追风岛TG频道https://t.me/zhuifengdao
